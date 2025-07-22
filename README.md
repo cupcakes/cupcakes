@@ -1,7 +1,9 @@
 ## ✨ cupcakes ✨
-🍒 riane.org
-🔌 unplugged from social media
-
+    🍒 riane.org
+    🔌 unplugged from social media
+    📭 jordan.riane @ pm.me
+    
+    ૮ ․ ․ ྀིა⠀
 
 <!--
 **cupcakes/cupcakes** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
