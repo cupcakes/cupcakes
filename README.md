@@ -1,7 +1,8 @@
 ## ✨ cupcakes ✨
-    🍒 riane.org
+    🍒 cakes.moe
     🔌 unplugged from social media
     📭 jordan.riane @ pm.me
+    🔮 https://anilist.co/user/cupcakey/
     
     ૮ ․ ․ ྀིა⠀
 
